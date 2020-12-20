@@ -7,6 +7,6 @@
 
 ### Start time: 2:00 pm
 ### Finish time: 4:00 pm
-### Actual time needed to complete: 2 hours ,, it's was so easy and I enjoyed with this lab
+### Actual time needed to complete: 2 hours ,, it was so easy and I enjoyed with this lab
 
 <br>
